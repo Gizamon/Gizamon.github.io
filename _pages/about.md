@@ -14,4 +14,4 @@ i play mostly homebrew with inspirations from settings and have been writing my 
 
 i only play commander when it comes to magic.
 
-**[Read my Final Project](file:///C:/Users/Public/Documents/BIOL%20390/Assignment-Final/Assignment-Final.html)**
+**[Read my Final Project](https://ferris.instructure.com/courses/8401/assignments/96506/submissions/21120?download=741838)**
