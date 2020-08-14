@@ -14,4 +14,4 @@ i play mostly homebrew with inspirations from settings and have been writing my 
 
 i only play commander when it comes to magic.
 
-[Read my Final Covid Project here and see what i Learned in R] ("file:///C:/Users/Public/Documents/BIOL%20390/Assignment-Final/Assignment-Final.html")
+**[Read my Final Project](file:///C:/Users/Public/Documents/BIOL%20390/Assignment-Final/Assignment-Final.html)**
