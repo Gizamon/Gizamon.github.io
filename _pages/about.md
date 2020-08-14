@@ -13,3 +13,5 @@ People always wonder what i mean by Tabletop enthusiast. well i currently own ov
 i play mostly homebrew with inspirations from settings and have been writing my own world for over 7 years oh how time flies. 
 
 i only play commander when it comes to magic.
+
+Read my Final Covid Project here and see what i Learned in R "file:///C:/Users/Public/Documents/BIOL%20390/Assignment-Final/Assignment-Final.html"
